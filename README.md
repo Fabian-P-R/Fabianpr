@@ -1,2 +1,0 @@
-# Fabianpr
-Presentación Personal
